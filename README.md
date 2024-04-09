@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Devops
 - 💞️ I’m looking to collaborate on AI ML concepts
 - 📫 How to reach me @9494213355 , @pradeep.bscg@gmail.com
-- 😄 Pronouns: MR
+- 😄 Pronouns: PC
 - ⚡ Fun fact: Nothing
 
 <!---
